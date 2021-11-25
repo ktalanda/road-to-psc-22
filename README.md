@@ -52,3 +52,45 @@ BJJ (Wed Fri)
 ## Training log
 
 ### 46/2021
+22/11/2021
+- BJJ morning class, sweeps from the half-guard.
+- Surf messy with some good waves:
+  * popup with glide.
+  * good position.
+  * keep the right line.
+  * bottom turn.
+- Flexibility training:
+  * spiderman stretches.
+  * upper-back stretch.
+  * monkey jumps.
+- Strenght:
+  * pushups.
+
+23/11/2021
+- Surf messy:
+  * popup with glide.
+  * bottom turn.
+  * top turn.
+- Flexibility:
+  * upper-back stretch.
+  * 50/50.
+  * spiderman stretch.
+- Strength:
+  * popups.
+  * pushups.
+  * core.
+
+24/11/2021
+- Surf messy:
+  * popup with glide.
+  * bottom turn.
+  * top turn.
+- Fexibility:
+  * spierman stretch.
+  * upper back rolling.
+  * 50/50
+- Strenght:
+  * pushups.
+  * legs lifts for core.
+- Freediving:
+  * CO2 tolerance training.
