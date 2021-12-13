@@ -168,11 +168,40 @@ Back on 36l fishy quad (Lost). I caught a wave back to the shore that I didn't e
   * spiderman stretch.
   * 50/50
   * upper spine stretch.
-  * pushups.
+  * pushups
 
 07/12/2021
 - Surf a bit bigger but still without big power.
 
   * right position on the break - finding the peak.
   * bottom turn.
-  * correct line.
+  * correct line
+
+08/12/2021
+- Lay day
+- Flexibility/strength
+  * spiderman stretch
+  * 50/50
+
+08/12/2021
+- Surf smaller with some open waves.
+  * right position on the wave
+  * take off
+- Flexibility/strength.
+  * spiderman stretch.
+  * 50/50
+  * pushups
+  * core excercises
+
+09/12/2021
+- South swell started building up, some nice lines.
+  * right position in the water, on the wave
+  * popup
+- Flexibility/strength.
+  * spiderman stretch.
+  * 50/50
+  * pushups
+  * core excercises
+
+13/12/2021
+- Lay day
